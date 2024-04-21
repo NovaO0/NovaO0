@@ -1,0 +1,4 @@
+- Hi, I’m @NovaO0
+- I’m interested in Coding
+- Pronouns: He/Him
+- Fun fact: idk why I'm here ;(
